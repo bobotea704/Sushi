@@ -1,2 +1,1 @@
-# Sushi
-sushi
+My all time favourite is sushi. Sushi is a popular Japanese dish made from seasoned rice with fish, egg, or vegetables.You can also have sushi with soy sauce wich gives it a sweet yet salty taste. What's great about sushi is that you can add the ingredients that you want or like. but im going to show you how I like to make sushi.
